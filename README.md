@@ -1,1 +1,0 @@
-# good-reads-B8-KamalakarP
